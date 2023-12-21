@@ -5,7 +5,7 @@ Throughout my life, I have been allowed to experience many cultures and groups o
 
 *   🌍  I'm based in Columbia, South Carolina
 *   ✉️  You can contact me at [niting1209@gmail.com](mailto:niting1209@gmail.com)
-*   🚀  I'm currently working on [On The Books](http://https://onthebooks.lib.unc.edu/)
+*   🚀  I'm currently working on [On The Books](https://onthebooks.lib.unc.edu/)
 
 ### Skills 
 <p align="left">
